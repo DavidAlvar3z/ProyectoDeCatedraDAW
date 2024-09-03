@@ -22,3 +22,6 @@ Link de los Mockups:
 
 https://www.canva.com/design/DAGPevyES3w/XrRdmpzwww4wAMJoZnUZ7w/view?utm_content=DAGPevyES3w&utm_campaign=designshare&utm_medium=link&utm_source=editor
 
+Licencia de creatives commons:
+
+Haremos uso de la licencia CC BY-SA 
