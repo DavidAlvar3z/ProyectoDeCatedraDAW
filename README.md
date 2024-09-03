@@ -3,7 +3,7 @@
 Integrantes:
 
 David Alejandro Alvarez Moreira AM240104
-Alejandra Marisol Hernández Monterrosa AM240103
+Alejandra Marisol Hernández Monterrosa HM240103
 Salvador Enrique Delgado Peñate DP240093
 Odir Ezequiel Díaz Peñate DP240083
 
